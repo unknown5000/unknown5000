@@ -9,6 +9,6 @@ My Stats on Github:
 
 Contacting me: 
 
-⚠️ Will not respond if the message is not development releated.
+⚠️ I Will not respond if the message is not development releated.
 
 [Reddit](https://www.reddit.com/message/compose?to=unknown5000-dev)
